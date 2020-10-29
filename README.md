@@ -14,3 +14,4 @@
 1. 千里眼顺风耳二娃
 1.铜头铁臂三娃
 ![](https://qgt-style.oss-cn-hangzhou.aliyuncs.com/newcoursep4/g1/g1-2-2/tenor.gif)
+![](https://qgt-style.oss-cn-hangzhou.aliyuncs.com/newcoursep4/g1/g1-2-2/%E6%BD%9C%E4%BC%8F.gif)
